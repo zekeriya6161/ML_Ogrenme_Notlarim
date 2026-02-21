@@ -1,1 +1,0 @@
-# ML_Ogrenme_Notlarim
